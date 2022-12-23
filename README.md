@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Henok Assalif 🌱
 - 👀 I’m interested in pursing a degree in electrical engineering with a specialization in digital ciruits. 
 - 🌱 I’m currently studying engineering at the University of Washington
-- 📫 You can reach me is through my email henok.assalif14@rspic.org or my linkedin Henok Assalif
+- 📫 You can reach me is through my email henok.assalif14@rspic.org or my Linkedin Henok Assalif
